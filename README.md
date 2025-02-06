@@ -1,1 +1,1 @@
-# Qlik-Proj-Olimp-adas
+# Qlik-Proj-Olimpíadas
