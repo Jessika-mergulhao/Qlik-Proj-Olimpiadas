@@ -1,0 +1,1 @@
+# Qlik-Proj-Olimp-adas
